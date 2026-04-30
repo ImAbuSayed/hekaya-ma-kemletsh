@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> عيونك سحر بتنادي الروح
+> في حضنك تشفى كل الجروح
+> أنا بين إيديك بنسى الزمان
+> قلبي معاك حاسس بالأمان
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
